@@ -6,4 +6,4 @@
 
 **Please ⭐️ This Repo**
 
-[<img src="Images/snapshot-bmc-button.png">](https://buymeacoffee.com/vemorr)
+[<img src="Images/snapshot-bmc-button.png">](https://buymeacoffee.com/vemorrr)
